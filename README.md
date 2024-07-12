@@ -8,3 +8,6 @@ No site do D-ID mesmo. Tentei criar algo mais realista na geração de avatares,
 
 ## 🚀 Resultados
 [Vídeo da IA](https://studio.d-id.com/share?id=fd7747381a5aa9feda934077a6817486&utm_source=copy)
+
+https://github.com/user-attachments/assets/a75359ca-5594-43e2-8ffb-fd1fab0aa811
+
